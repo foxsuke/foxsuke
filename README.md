@@ -5,4 +5,4 @@ hello law 😁 hello andre 😁 hello eli 😁 hello toru 😁
 
 basically anyone can interact
 **HOWEVER**. dandys world, regretavator, phighting, dandys world, max design pro, skibidi toilet or any fans of stuff like that strictly dni.
-also big twst fans dni i just dont really like it sorry
+also big twst fans dni unless we're friends i just dont really like it sorry
