@@ -1,8 +1,4 @@
-# if u see this and my name says like 'check github' or something it means im literally asleep or at school. probably the first one though
-hello law 😁 hello andre 😁 hello eli 😁 hello toru 😁
-
-## im actually pretty cool with wtv btw so u can sit with me or whatever idrc what u do to my pixelated pony
-
-basically anyone can interact
-**HOWEVER**. dandys world, regretavator, phighting, dandys world, max design pro, skibidi toilet or any fans of stuff like that strictly dni.
-also big twst fans dni unless we're friends i just dont really like it sorry
+heellooo!!!!!!!!!!! im the most normal person EVER!! not really
+i dont give out my discord randomly but if we're green names u can ask!!!!!!!!
+i like a lot of things heh but i cant list it really
+I HOPE WE CAN BE FRIENDS !!!!!!!!!!!!!!!!!!!!!!!!!!!!
