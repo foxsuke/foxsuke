@@ -1,4 +1,4 @@
-# now playing just take my wallet
+# take a slice
 
 heellooo!!!!!!!!!!! im the most normal person EVER!! not really
 i dont give out my discord randomly but if we're green names u can ask!!!!!!!!
